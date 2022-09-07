@@ -1,1 +1,1 @@
-https://Mindlog.github.io/rsschool-cv/dfg
+https://Mindlog.github.io/rsschool-cv/
